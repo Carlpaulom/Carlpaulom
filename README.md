@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Carlpaulom
-- 👀 I’m interested in a role in debeloper and im willing to learn and grow 
+- 👀 I’m interested in a role in developer and im willing to learn and grow 
 - 🌱 I’m currently learning as a developer 
 - 💞️ I’m looking to collaborate on industry 
 - 📫 How to reach me cuz my personality is early to develop in other task 
